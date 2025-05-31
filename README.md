@@ -1,16 +1,18 @@
-## Hi there 👋
+### Hi there 👋
 
-<!--
-**Elaina1001/Elaina1001** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**About me**
 
-Here are some ideas to get you started:
+Hello my name is Elaina Nieves and I attend Arizona State University online, I’m currently working on my Graphic Information Technology degree
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+☆*: .｡. o(≧▽≦)o .｡.:*☆
+
+
+ 
+ 🖥️ I currently work as a part-time Graphic designer at my local college
+ 
+ 🏓 My Hobies include creating art in adobe and pottery 
+ 
+
+- 📫 My linkedIn (https://www.linkedin.com/in/elaina-nieves-76a487253/)
+  
+
